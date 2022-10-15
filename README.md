@@ -1,0 +1,3 @@
+- hello, i’m serif, i use she/it pronouns
+- i mostly draw anime girls but i'm trying to learn actual Programmer Stuff™
+- more info about me can be found on my homepage https://xenonical.neocities.org/about-me.html
